@@ -1,6 +1,6 @@
 ## hi 🦞🤯🥬
 
-these are my links
+this is my github profile
 
 https://jsakeag-code.carrd.co/
 
