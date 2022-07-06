@@ -1,7 +1,5 @@
 ## hi 🦞🤯🥬
 
-this is my github profile
-
 https://jsakeag-code.carrd.co/
 
 [Unity Play](https://play.unity.com/u/Icerixx) //
