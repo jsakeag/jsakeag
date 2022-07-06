@@ -1,4 +1,4 @@
-## hi 👋🦞🤯🥬
+## hi 👋
 
 https://jsakeag-code.carrd.co/
 
