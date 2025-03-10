@@ -1,2 +1,2 @@
 ## hi 👋
-[portfolio](https://tinyurl.com/2322hafh)
+[portfolio](https://tinyurl.com/jsakeag-portfolio)
